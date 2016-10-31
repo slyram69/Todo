@@ -7,3 +7,4 @@
 * push it real good
 * shampoo my hair
 * make the bed
+* Figure out what the heck we're supposed to be doing
